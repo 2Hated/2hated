@@ -11,6 +11,6 @@
 - ✅i'm always down to help you with anything coding ralated:
 - 💲contact me by these socials
 
-### discord: @2.hated | ### instagram: @2.hatedfr | ### twitter: @manicyhd
+### discord: @2.hated | instagram: @2.hatedfr | twitter: @manicyhd
 
 
