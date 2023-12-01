@@ -1,16 +1,16 @@
-### Hi there 👋
+### Hello Welcome to my github page
 
-<!--
-**2Hated/2hated** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- 🔃 I’m currently working on Economy Bot
+- 🌱 I’m currently learning C#
+- 💬 Ask me about Python, bots, JS
+- 📫 How to reach me: Instagram: 2.hated
+- 😄 Pronouns: He/Him
+  
+### Need help with something?
 
-Here are some ideas to get you started:
+- ✅i'm always down to help you with anything coding ralated:
+- 💲contact me by these socials
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### discord: @2.hated | ### instagram: @2.hatedfr | ### twitter: @manicyhd
+
+
